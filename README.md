@@ -1,6 +1,6 @@
- <h5 align=center> <img width="500" height="500" alt=" " src="https://file.garden/aOFJZUM02SFxAPgt/9d79f7dffc5ed4b3ce61235e8f224d06.gif" />
+ <h5 align=center> <img width="500" height="500" alt=" " src=" " />
 
- ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀  ⠀  ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⤷  [ata](https://obiiii.atabook.org/)  ⠀ - ⠀⠀[rentry](https://rentry.co/thestrongestone) ⠀⠀- ⠀⠀ [art collection](https://whathehell.straw.page) ⠀⠀ - ⠀⠀ [gallery](https://randomassgalery.straw.page) ⤶
+ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀  ⠀  ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⤷  [remake](https://obiiii.atabook.org/)  ⠀ - ⠀⠀[remake](https://rentry.co/thestrongestone) ⠀⠀- ⠀⠀ [remake](https://whathehell.straw.page) ⠀⠀ - ⠀⠀ [remake](https://randomassgalery.straw.page) ⤶
  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀  ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀
   ⠀⠀⠀ ⠀⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀
- <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=korehau&color=blue&style=flat-square&label=ᯓ.˚+in+hell_there's+heaven+♬+>
+ <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=korehau&color=blue&style=flat-square&label=remake>
